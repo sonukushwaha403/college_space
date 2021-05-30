@@ -19,3 +19,7 @@ https://www.shiksha.com/college/indian-institute-of-technology-jodhpur-32712/adm
 https://collegedunia.com/university/28194-indian-institute-of-technology-iit-jodhpur/admission
 
 https://collegedunia.com/university/28194-indian-institute-of-technology-iit-jodhpur/cutoff
+
+
+IIT Madras
+https://drive.google.com/file/d/1kTEIB3fY0i7wiF6Az912TXAp8iW6Zzcr/view?usp=sharing
