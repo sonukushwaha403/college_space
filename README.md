@@ -21,3 +21,12 @@ IIT Jodhpur
     https://collegedunia.com/university/28194-indian-institute-of-technology-iit-jodhpur/admission
 
     https://collegedunia.com/university/28194-indian-institute-of-technology-iit-jodhpur/cutoff
+IIT ROORKEE
+
+    https://www.embibe.com/exams/iit-roorkee-cutoff/amp/
+
+    https://engineering.careers360.com/articles/iit-roorkee-seat-matrix
+
+    https://collegedunia.com/university/25992-indian-institute-of-technology-iit-roorkee/cutoff
+
+    https://www.fresherslive.com/education/iit-roorkee-cut-off-104096
