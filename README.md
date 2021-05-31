@@ -30,3 +30,13 @@ IIT ROORKEE
     https://collegedunia.com/university/25992-indian-institute-of-technology-iit-roorkee/cutoff
 
     https://www.fresherslive.com/education/iit-roorkee-cut-off-104096
+    
+ IIT Madras
+ 
+     https://www.google.com/url?sa=t&source=web&rct=j&url=https://www.shiksha.com/college/iit-madras-indian-institute-of-technology-adyar-chennai-3031/cutoff-jee-    advanced&ved=2ahUKEwjm2_mfnfPwAhVPVH0KHdlIAjkQFjABegQIBBAF&usg=AOvVaw3zRciy06uruZ7M59EpoCIq
+
+https://www.google.com/url?sa=t&source=web&rct=j&url=https://engineering.careers360.com/articles/jee-advanced-cutoff-for-iit-madras/amp&ved=2ahUKEwjm2_mfnfPwAhVPVH0KHdlIAjkQFjALegQICxAC&usg=AOvVaw2yU1jUE2fbV1nVWFcma9sz&ampcf=1
+
+https://www.google.com/url?sa=t&source=web&rct=j&url=https://www.collegedekho.com/amp/articles/josaa-cutoff-opening-closing-ranks/&ved=2ahUKEwjm2_mfnfPwAhVPVH0KHdlIAjkQFjANegQIDxAC&usg=AOvVaw0n3r3UggSJInx0GWLJh1Ck&ampcf=1
+
+https://www.google.com/url?sa=t&source=web&rct=j&url=https://josaa.nic.in/Result/Result/currentorcr.aspx&ved=2ahUKEwjm2_mfnfPwAhVPVH0KHdlIAjkQFjAKegQIFBAC&usg=AOvVaw2qqb5B0LBTfAKaphYeMfrB
