@@ -1,25 +1,21 @@
-# college_space
-Model based on college predictor
+Model based on college predictor-2021
 
 IIT BHU CUT OFF RANK
 
-    https://engineering.careers360.com/articles/jee-advanced-cutoff-for-iit-bhu
 
-    https://collegedunia.com/university/25947-indian-institute-of-technology-iit-bhu-varanasi/cutoff
+https://collegedunia.com/university/25947-indian-institute-of-technology-iit-bhu-varanasi/cutoff
 
-    https://www.collegepravesh.com/engineering-colleges/iit-bhu-varanasi/
 
-    https://drive.google.com/file/d/1Pqnp0Dd6Vxj7pT4ebB-MO4ZpTfEfq8W5/view?usp=drivesdk
+https://drive.google.com/file/d/1Pqnp0Dd6Vxj7pT4ebB-MO4ZpTfEfq8W5/view?usp=drivesdk
 
 
 IIT Jodhpur
 
-    https://www.careerlauncher.com/engineering/colleges/iit-jodhpur.html
 
-    https://www.shiksha.com/college/indian-institute-of-technology-jodhpur-32712/admission
+https://www.shiksha.com/college/indian-institute-of-technology-jodhpur-32712/admission
 
-    https://collegedunia.com/university/28194-indian-institute-of-technology-iit-jodhpur/admission
 
+    https://collegedunia.com/university/28194-indian-institute-of-technology-iit-jodhpur/cutoff
     https://collegedunia.com/university/28194-indian-institute-of-technology-iit-jodhpur/cutoff
 IIT ROORKEE
 
@@ -40,3 +36,4 @@ https://www.google.com/url?sa=t&source=web&rct=j&url=https://engineering.careers
 https://www.google.com/url?sa=t&source=web&rct=j&url=https://www.collegedekho.com/amp/articles/josaa-cutoff-opening-closing-ranks/&ved=2ahUKEwjm2_mfnfPwAhVPVH0KHdlIAjkQFjANegQIDxAC&usg=AOvVaw0n3r3UggSJInx0GWLJh1Ck&ampcf=1
 
 https://www.google.com/url?sa=t&source=web&rct=j&url=https://josaa.nic.in/Result/Result/currentorcr.aspx&ved=2ahUKEwjm2_mfnfPwAhVPVH0KHdlIAjkQFjAKegQIFBAC&usg=AOvVaw2qqb5B0LBTfAKaphYeMfrB
+https://collegedunia.com/university/28194-indian-institute-of-technology-iit-jodhpur/cutoff
