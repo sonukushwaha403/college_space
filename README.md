@@ -1,4 +1,4 @@
-# college_space
+# college_spacei Projects
 Model based on college predictor
 
 IIT BHU CUT OFF RANK
